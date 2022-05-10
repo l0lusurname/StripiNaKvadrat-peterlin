@@ -1,0 +1,1 @@
+# StripiNaKvadrat-peterlin
